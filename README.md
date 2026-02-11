@@ -1,0 +1,1 @@
+# Permanecei-Vida_de_Ora-o-App
